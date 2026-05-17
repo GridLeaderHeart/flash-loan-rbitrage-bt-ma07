@@ -1,4 +1,4 @@
-# 
+# new bot sniper MEV scripts é o melhor bot sniper MEV scripts com controle de slippage e otimização de gas. Seguro, confiável e otimizado para estratégias MEV, sniper e arbitragem.
 
 
 
